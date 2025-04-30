@@ -12,7 +12,7 @@ They didn’t wait for the world to agree with them. They saw something before t
 
 ## You Don't Cash Out by Following the Herd📉
 
-Here’s the thing — if *everyone* agrees something is the next big thing, then the opportunity to create *massive* wealth is already gone. Why? Because the value gets spread thin. Everyone has a slice.
+If *everyone* agrees something is the next big thing, then the opportunity to create *massive* wealth is already gone. Why? Because the value gets spread thin. Everyone has a slice.
 
 Real fortunes are built by those who spot trends **before** they become obvious, when everyone else is skeptical.
 
