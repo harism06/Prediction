@@ -4,6 +4,7 @@ Recently, I have been studying very wealthy people to understand what led them t
 
 **Prediction.**
 
+
 ## You Don't Cash Out by Following the Herd📉
 
 If you look at all wealthy individuals, they made predictions about something, and they were right, which allowed them to build massive fortunes.
